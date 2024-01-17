@@ -1,4 +1,4 @@
-### Hi there 👋
+
 <h1 align="center">Hi 👋, I'm Elise</h1>
 - 📫 How to reach me **elise_vandersteen@hotmail.com**
 
